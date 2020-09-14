@@ -1,0 +1,1 @@
+# Dynamic-Pricing-Discounts-Lite-for-WooCommerce
